@@ -1,2 +1,2 @@
 # teht3
-tommonen ryhmätehtävä 3 tohonnoin
+arttu paju, onni honkanen
